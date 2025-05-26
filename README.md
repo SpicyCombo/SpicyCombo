@@ -1,1 +1,1 @@
-**SPICYCOMBO** - admin@basicsurvival.xyz
+Hi, I'm SpicyCombo!
